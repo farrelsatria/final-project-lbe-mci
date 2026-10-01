@@ -5,7 +5,7 @@
 | :--- | :--- |
 | Farrel Satria Mukti | 5025251138 |
 | Made Joshua Ama Ede | 5025251150 |
-| Dewa Ngakan Putu Sunyananda T. | 5025251152 |
+| Dewa Ngakan Putu Sunyananda Triyanca | 5025251152 |
 | Wanhardo Jawak | 5025251155 |
 | Fawwas Razzan Sulfi Andreyawan | 5025251202 |
 
